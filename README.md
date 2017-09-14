@@ -1,3 +1,3 @@
 # Hello-world
-Just a sample Reprository
-Thank you for the universe for supporting me
+Just a sample Reprository to
+THANK YOU UNIVERSE FOR SUPPORTING ME
