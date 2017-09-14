@@ -1,2 +1,1 @@
-# Hello-world
-Just a sample Reprository
+I Swaroop, would like to thank all the Teachers and Supporters who helped me in my journey of life. Thank you Universe for being in my back and supporting me everyday. Thank you for everything who gave me support. Great to hear with you all guys. I will create more and more creative technologies and help people in their life.
